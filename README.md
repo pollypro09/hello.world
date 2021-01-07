@@ -1,0 +1,2 @@
+# hello.world
+External accessories can largely improve both the function you get out of your phone and help preserve its quality and long life. The right phone accessories and equipment can make sure your smartphone is pulling its maximum. Here we present you some of the best phone accessories from the best smartwatches to the best Bluetooth speakers, at different price points and for every smartphone user.
